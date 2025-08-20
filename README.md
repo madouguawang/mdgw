@@ -8,6 +8,6 @@
 
 ⏰麻豆瓜网Telegram官方用户交流群   https://t.me/madouguawang
 
-麻豆瓜网官方推特：@madouguawang
+麻豆瓜网官方推特：https://x.com/madouguawang
 
 ⏰如何获取麻豆瓜网最新访问地址？ 请发任意内容到邮箱：mdgw8@pm.me 即可获取# mdgw
