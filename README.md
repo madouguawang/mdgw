@@ -6,7 +6,7 @@
 
 麻豆瓜网永久地址（需要使用VPN访问）https://mdgw1.com   （请复制到浏览器打开）
 
-⏰麻豆瓜网Telegram官方用户交流群   @madouguawang01
+⏰麻豆瓜网Telegram官方用户交流群   https://t.me/madouguawang
 
 麻豆瓜网官方推特：@madouguawang
 
